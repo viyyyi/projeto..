@@ -1,4 +1,3 @@
-#bullying
 O que é bullying?
 Bullying é uma palavra que se originou na língua inglesa. “Bully” significa “valentão”, e o sufixo “ing” representa uma ação contínua. A palavra bullying designa um quadro de agressões contínuas, repetitivas, com características de perseguição do agressor contra a vítima, não podendo caracterizar uma agressão isolada, resultante de uma briga.
 
@@ -11,9 +10,7 @@ Normalmente, chamamos de bullying o comportamento agressivo sistemático cometid
 As discussões sobre o bullying são relativamente recentes, chamando a profunda atenção dos especialistas em comportamento humano apenas nas últimas duas décadas. Até a década de 1970, não se falava sobre bullying. O comportamento agressivo e a perseguição sistemática de algumas crianças contra outras era visto como um traço comportamental natural, afirma Cleo Fante, especialista no assunto.
 
 Comumente, o bullying é uma prática injusta, visto que os agressores ou agem em grupo (ou com o apoio do grupo) ou agem contra indivíduos que não conseguem se defender das agressões. Apesar de considerarmos o sofrimento da vítima, também devemos tentar entender o comportamento dos agressores. Muitas vezes, são jovens que passam por problemas psicológicos ou que sofrem agressões no ambiente familiar e na própria escola, e tentam transferir os seus traumas por meio da agressividade contra os outros.
-
-
-
+![]( https://escoladainteligencia.com.br/wp-content/uploads/2018/06/bullying-na-escola.jpg)
 
 
 
